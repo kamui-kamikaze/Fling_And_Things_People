@@ -1,2 +1,1 @@
-# Fling_And_Things_People
-UwU
+# Pls Check UwU.md
